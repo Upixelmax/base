@@ -1,1 +1,1 @@
-![Prototipo pantalla Study Mate](https://imgur.com/beIgSU2)
+![](https://imgur.com/beIgSU2)
